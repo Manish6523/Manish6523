@@ -16,4 +16,4 @@ My name is **Manish Sharma**, and I'm a Full-Stack Developer focused on building
 
 ### 🌐 Socials
 
-[LinkedIn](https://www.linkedin.com/in/sharma-manish6523) | [Instagram](https://instagram.com/_.manish._.sharma._/)
+[LinkedIn](https://www.linkedin.com/in/sharma-manish6523) | [Instagram](https://instagram.com/sharma.man1sh)
